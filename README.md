@@ -1,5 +1,5 @@
 # Best Kratom for Anxiety: Complete Guide to Natural Relief and Strain Selection
-![Uploading image.png…]()
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/94b213e5-aa52-4834-a128-c2c0f2f4cf60" />
 
 Anxiety affects millions of people worldwide, and many are turning to natural alternatives for relief. Kratom, a tropical tree native to Southeast Asia, has gained significant attention for its potential calming properties. Finding the **best kratom for anxiety** requires understanding different strains, dosages, and quality sources. For those seeking premium kratom products, [Jack Botanicals](https://jackbotanicals.com/shop/) offers a comprehensive selection of high-quality strains specifically chosen for their anxiety-relieving properties.
 
